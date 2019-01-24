@@ -1,4 +1,4 @@
-**Women in Science and Engineering Graduate Student Society - WISE GSS**
+**Women in Science and Engineering Graduate Student Society**
 
 *Code of Conduct*
 
